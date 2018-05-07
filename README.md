@@ -1,6 +1,6 @@
-# cause the sky
-cause the sky full of stars
-i'm goona give my heart
+# cause you're the sky
+cause you're the sky full of stars
+i'm goona give you my heart
 cause the sky
 cause the sky full of stars
 cause you light up the path 
